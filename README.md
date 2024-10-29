@@ -1,1 +1,1 @@
-Just for you 😜😂
+Just for you
